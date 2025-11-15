@@ -78,8 +78,7 @@ Contact
 
 For any queries or contributions, feel free to reach out:
 
-Email: pnbisaleri@gmail.com
+Email: nivedithar483@gmail.com
 
-GitHub: PNBisaleri
+Made with ❤️ by Niveditha R
 
-Made with ❤️ by Pavithra N Bisaleri
